@@ -1,2 +1,3 @@
-# GeometryDashCrack-
-I'm introducing you to geometry dash for free! The game is amazing, there are all unlockables and lots of levels!-
+GeometryDash - Enhanced Gaming Experience Repository 🚀
+
+ Dive into the world of GeometryDash with our carefully curated collection. Elevate your gaming experience with these enhancements. Antivirus warnings may appear – temporarily disable to unlock seamless installation. Let the gaming thrill begin!
